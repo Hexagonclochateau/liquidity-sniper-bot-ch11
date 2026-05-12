@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with new liquidity sniper bot | front-running + token-launch-monitoring, the #1 liquidity sniper bot. Includes front-running and token-launch-monitoring for a
 
 
 
